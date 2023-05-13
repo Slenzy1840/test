@@ -1,1 +1,1 @@
-# gelismis-log-botu
+20 Star paylaşıyorum.
