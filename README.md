@@ -1,1 +1,1 @@
-# 20 Star paylaşıyorum.
+yalan oldu 
