@@ -1,1 +1,1 @@
-20 Star paylaşıyorum.
+# 20 Star paylaşıyorum.
